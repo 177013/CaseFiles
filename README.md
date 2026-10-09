@@ -150,6 +150,7 @@ some of the titles are romanized as opted by the consolidator. catalog IDs in nu
 - 391094 - When my niece has fallen asleep ... Time to meet in SEX education
 - 524004 - Budoukei Oyako o Saimin de Okasu
 - 530746 - Natsu no Aru Koto
+- 533597 - Omoi Nawa Ch. 1-3
 - 544101 - Parasite Extra \~Tsuki Aoi's younger brother, continued (first half)\~
 - 601853 - Zanshu tobaku Winter
 - 608690 - Kesson Shoukan e Youkoso
